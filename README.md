@@ -1,0 +1,1 @@
+# Screaming-Frog-SEO-Spider-Latest-Patch
